@@ -11,7 +11,6 @@
 
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Rockstar-ExtraBold&size=30&pause=1000&color=0000FF&center=true&vCenter=true&width=815&height=60&lines='𝐋𝐈𝐀𝐇 𝐒𝐇𝐘 𝐆𝐀𝐋+⭕+𝐂𝐑𝐄𝐀𝐓𝐄𝐃+𝐁𝐘+𝐏𝐎𝐏𝐊𝐈𝐃)](https://git.io/typing-svg) 
-
 <p align="centre"><img src="https://i.ibb.co/m6FjJJS/IMG-20241213-WA0147.jpg"400" height="600" />
 
 
